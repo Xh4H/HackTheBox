@@ -1,1 +1,1 @@
-Challenge solved in 4th place, pdf file protected by the flag of the challenge.
+Challenge solved in 4th place, write up pdf file protected by the flag of the challenge.
